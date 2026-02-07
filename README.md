@@ -1,0 +1,48 @@
+# HWASA – Good Goodbye
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+나를 그냥 짓밟고 가
+괜찮아 돌아보지 마
+내가 아파봤자 너만 하겠니
+이젠 너를 헤아려봐
+날 위해 쉬던 그 숨은 잊고
+저 위에 널 위해 just kill my ego
+등 돌려 걸어가
+You got it you got it yeah
+안녕은 우릴 아프게 하지만 우아할 거야
+나 땅을 치고 후회하도록 넌 크게 웃어줘
+goodb-ye
+bye ye ye ye ye ye
+bye ye ye ye ye ye (b-ye)
+bye ye ye ye ye ye
+bye ye ye ye ye
+후회하도록 goodb-ye
+널 생각한 운율이야
+비로소 느껴지잖아
+눈물은 고이고 찬란하게 빛나
+우린 좋은 안녕 중이야
+고맙단 말 대신 전할게
+goodbye good goodbye
+안녕은 우릴 아프게 하지만 우아할 거야
+나 땅을 치고 후회하도록 넌 크게 웃어줘
+goodb-ye
+bye ye ye ye ye ye
+bye ye ye ye ye ye (b-ye)
+bye ye ye ye ye ye
+bye ye ye ye ye
+세상이 나를 빤히 내려다봐도
+내 편이 돼 줄 사람 하나 없어도
+Don't worry it's okay
+난 내 곁에 있을게
+I'll be on my side instead of you
+안녕은 나를 아프게 하지만 울어볼 거야
+땅을 치고 후회해도 좋아 우리 이렇게
+goodb-ye
+bye ye ye ye ye ye
+bye ye ye ye ye ye (b-ye)
+bye ye ye ye ye ye
+bye ye ye ye ye
+후회조차도 goodb-ye
+```
